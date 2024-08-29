@@ -1,0 +1,2 @@
+# -ving-vipr-verigjen-
+hjelp
